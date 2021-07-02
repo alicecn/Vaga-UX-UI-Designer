@@ -58,3 +58,5 @@ Plano de saúde e odontológico - SulAmérica.
 Horário flexível.
 
 Cadastre-se! https://jobs.kenoby.com/mjv/job/uxui-senior/60ace9f377f58e161803bd45?utm_source=website
+
+#uxdesign #uidesign #ux #ui #inovacao #designthinking #designdeprodutos #experienciadousuario
