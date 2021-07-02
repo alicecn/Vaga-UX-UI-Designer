@@ -1,5 +1,6 @@
 # Vaga-UX-UI-Designer
 MJV | Vagas UX/UI Designer
+
 Sobre o desafio �
 
 Será responsável por liderar projetos de inovação centrados no usuário, disseminar conhecimento e criar ferramentas de inovação na companhia, tais como:
